@@ -1,6 +1,6 @@
 # DevOps
 Repo for DevOps
-I love mercdes mercedes is me boate220d on tiktok!!
-Team Members: Quarter to ten
-Contact me anytime xoxoxo
-available for calls from 9-5
+
+Team Members: Qader & Tiarnan
+Email me anytime: qadersufyan@gmail.com
+Available for calls from 9-5
